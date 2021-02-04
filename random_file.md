@@ -40,3 +40,28 @@ Kitty power ccccccccccccaaaaaaaaaaaaaaatttttttttttttttttssssssssssssssss i love 
 \n
 Litter box is life cat slap dog in face and warm up laptop with butt lick butt fart rainbows until owner yells pee in litter box hiss at cats for do not try to mix old food with new one to fool me! pelt around the house and up and down stairs chasing phantoms. White cat sleeps on a black shirt purr like a car engine oh yes, there is my human slave woman she does best pats ever that all i like about her hiss meow hate dog, chase red laser dot human is behind a closed door, emergency! abandoned! meeooowwww!!!, or sleep on my human's head. Hide when guests come over poop on grasses. Cat milk copy park pee walk owner escape bored tired cage droppings sick vet vomit scratch the postman wake up lick paw wake up owner meow meow and jump up to edge of bath, fall in then scramble in a mad panic to get out yet annoy owner until he gives you food say meow repeatedly until belly rubs, feels good. Pet my belly, you know you want to; seize the hand and shred it! toy mouse squeak roll over yet pretend you want to go out but then don't a nice warm laptop for me to sit on. Meow to be let in white cat sleeps on a black shirt. Hell is other people so you're just gonna scroll by without saying meowdy? but i show my fluffy belly but it's a trap! if you pet it i will tear up your hand demand to be let outside at once, and expect owner to wait for me as i think about it mark territory kitty ipsum dolor sit amet, shed everywhere shed everywhere stretching attack your ankles chase the red dot, hairball run catnip eat the grass sniff 𝕄𝔼𝕆𝕎.
  \n\n
+ Orycteropus afer
+
+                ,
+          (`.  : \               __..----..__
+           `.`.| |:          _,-':::''' '  `:`-._
+             `.:\||       _,':::::'         `::::`-.
+               \\`|    _,':::::::'     `:.     `':::`.
+                ;` `-''  `::::::.                  `::\
+             ,-'      .::'  `:::::.         `::..    `:\
+           ,' /_) -.            `::.           `:.     |
+         ,'.:     `    `:.        `:.     .::.          \
+    __,-'   ___,..-''-.  `:.        `.   /::::.         |
+   |):'_,--'           `.    `::..       |::::::.      ::\
+    `-'                 |`--.:_::::|_____\::::::::.__  ::|
+                        |   _/|::::|      \::::::|::/\  :|
+                        /:./  |:::/        \__:::):/  \  :\
+                      ,'::'  /:::|        ,'::::/_/    `. ``-.__
+        jrei         ''''   (//|/\      ,';':,-'         `-.__  `'--..__
+                                                              `''---::::'
+
+
+ ------------------------------------------------
+ Thank you for visiting https://asciiart.website/
+ This ASCII pic can be found at
+ https://asciiart.website/index.php?art=animals/aardvarks
